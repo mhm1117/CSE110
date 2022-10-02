@@ -1,5 +1,6 @@
+# Matilda Michel
+
 <p align="center">
-  # Matilda Michel
   
-  ![selfie image](profesh_selfie.jpg)
+   <img src="profesh_selfie_small.jpg">
 </p>
