@@ -21,7 +21,8 @@ I'm from San Francisco and moved to SD for school in 2017! I'm a Cog Sci major s
 - Video Games (Ghost of Tsushima, Minecraft, Stardew Valley, and the Assassin's Creed games are some of my favorites!)
 - Musical Theater (I think West Side Story and Into the Woods are my favorites, but it's hard to pick)
 
-**I love...** Tea over coffee, swimming in the ocean, cats (especially mine!) exploring the city, rollercoasters/theme parks, reading, watching shows + video essays about those shows
+**I love...** Tea over coffee, swimming in the ocean, cats (especially mine!), going on little adventures, rollercoasters/theme parks, watching shows + video essays about those shows, and also mostly just staying at home all day.
+
 
 ## Contact Me
 **School Email:** mmichel@ucsd.edu
